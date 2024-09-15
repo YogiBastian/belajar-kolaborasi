@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-Belajar menjadi
+Belajar menjadi dewasa
